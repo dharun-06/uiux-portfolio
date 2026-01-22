@@ -70,8 +70,7 @@ appealing digital experiences.
 
 ## 📫 Contact
 
-- Email: your-email@example.com  
-- LinkedIn: https://linkedin.com/in/your-profile  
+- Email: dharunj18@gmail.com 
 
 ---
 
